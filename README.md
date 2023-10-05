@@ -1,1 +1,2 @@
 Leah Rosenbaum
+roseleah@oregonstate.edu
